@@ -24,6 +24,7 @@ Are you Bored? [Try This!](https://www.boredbutton.com/)
 [Saved the Best Till Last](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 
+
 ## More About Me 😵‍💫
 🍍**My Top 5 Glass Animals Song** -> *(I am not obssessed... trust...)* 🍍
 1. Heat Waves
@@ -42,11 +43,20 @@ Are you Bored? [Try This!](https://www.boredbutton.com/)
 * Luxury - Drax Project
 
 
+## I blame my friend
+They introduce this to me in Year 8 and I cannot stop laughing at how weird Shutterstock stock images are lol
+
+![Cyber Corn](https://www.shutterstock.com/image-photo/cyber-woman-corn-260nw-42829624.jpg)
+
+I also Blame Conan O'Brien for adding to me being cringey :) 
+
+![Giddy Conan O'Brien](https://media1.tenor.com/m/0FWjOsxX6y0AAAAC/conan-o-brien-happy.gif)
+
 
 ## a little gif of dave dancing and spinning like a NPC
 thanks for scrolling this far down!! :))) 
 
-this video is from when I went and saw them in Sydney in 2022!
+this video is from when I flew over to Sydney, Australia and saw them in 2022!
 
 \*\*\*! flash warning !\*\*\*
 
