@@ -56,7 +56,7 @@ I also Blame Conan O'Brien for adding to me being cringey :)
 ## a little gif of dave dancing and spinning like a NPC
 thanks for scrolling this far down!! :))) 
 
-this video is from when I flew over to Sydney, Australia and saw them in 2022!
+this video is from when I flew over to Sydney, Australia and saw Glass Animals in 2022!
 
 \*\*\*! flash warning !\*\*\*
 
